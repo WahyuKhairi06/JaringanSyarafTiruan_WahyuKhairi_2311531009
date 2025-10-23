@@ -1,0 +1,2 @@
+# JaringanSyarafTiruan_WahyuKhairi_2311531009
+JST
